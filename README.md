@@ -1,1 +1,1 @@
-![image](https://github.com/ebikguerrerozoluxiones/ebikguerrerozoluxiones/assets/145425521/820c4b58-23d1-4d93-87de-8416dec28ab9)
+![image](https://github.com/ebikguerrerozoluxiones/ebikguerrerozoluxiones/assets/145425521/66100a56-1273-4fab-8b35-1b78f90696f2)
